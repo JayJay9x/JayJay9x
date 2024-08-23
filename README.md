@@ -1,4 +1,4 @@
-👋 Hi, I’m @JayJay9x
+👋 Hi, I’m @JayJay9x - Đỗ Trung Hoà
 👀 I’m interested in exploring new techniques and applying them to my current work, business and life management.
 🌱 I’m currently learning practical application development skills, especially in the field of DATA.
 💞️ I’m looking to collaborate on projects that aim to build a team where members support each other in improving weaknesses, personal growth, and learning new knowledge.
